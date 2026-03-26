@@ -1,0 +1,39 @@
+# 家入レオ – No Control
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+I can feel inside
+影は囁く
+壊れた予感
+誰にも言わない
+見つけた
+愛していられたら
+I'm lost in the sound
+I have got no control
+何度でも生まれ変わる
+数えきれない夜を生きて
+I will never give up on you
+身勝手でも傷付いても
+あなただけが知っている
+数えきれない夜を生きて
+I will never give up on you
+We can feel inside
+あなたはわたし
+悪い夢でも
+2人は幸せ
+離さない
+覚めずにいられたら
+I'm lost in the sound
+I have got no control
+何度でも生まれ変わる
+数えきれない夜を生きて
+I will never give up on you
+運命を欺いても
+何度でも罪を犯す
+数えきれない愛を生きて
+I will never give up on you
+会いたくて ずっと 消せないまま
+重なって重なって重なって
+赦して
+```
